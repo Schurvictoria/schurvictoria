@@ -4,3 +4,15 @@
 ## 🚀Project and experience
 
 In the beginning I was involved in projects related to python, such as window application, games and private sites, all of my first projects on these topics you can see here:
+
+Mentionings:
+
+https://vk.com/wall-182343311_2157
+
+https://www.nkj.ru/prtnews/42504/
+
+https://olympmo.ru/bolshie-vyizovyi-july-2021.html
+
+https://vk.com/wall-71991592_34652
+
+https://www.instagram.com/p/CR1b9xKIaf4/
