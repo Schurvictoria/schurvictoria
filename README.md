@@ -1,1 +1,1 @@
-  **Hello everyone** 👋 My name is Victoria. I study machine learning, data analysis. I am interested in research in the field of machine and deep learning, computational mathematics and robotics, I am also interested in product management and the study of foreign languages :)
+
